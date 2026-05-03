@@ -206,4 +206,4 @@ With only 30 conversions (1.3% of customers), Campaign 2's approach was signific
 BBA in Business Analytics & Marketing — United International University, Dhaka
 📧 barmanswagata1@gmail.com
 🌐 [swa34.wordpress.com](https://swa34.wordpress.com)
-🔗 LinkedIn: [www.linkedin.com/in/swagata-barman-a904b5334/] (https://www.linkedin.com/in/swagata-barman-a904b5334/)
+🔗 LinkedIn: [www.linkedin.com/in/swagata-barman-a904b5334](https://www.linkedin.com/in/swagata-barman-a904b5334/)
